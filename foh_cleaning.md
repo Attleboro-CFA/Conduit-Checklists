@@ -1,0 +1,25 @@
+- [ ] Dust menu boaros.
+- [ ] Wipe down roolsters and counters
+- [ ] Wipe down walls surrounding DT drinks and lemonade machines
+- [ ] Clean glass windows and doors
+- [ ] THOROUGH parking lot check
+- [ ] Ensure bathrooms are clean and stocked properly
+- [ ] Dust the KPS and registers in DT
+- [ ] Dust white walls in DT
+- [ ] Maintain organized Manager's station
+- [ ] Wipe down Bessie
+- [ ] Sweep floors in DT and FC
+- [ ] Keep FC clean and dry
+- [ ] Wipe down all cabinets
+- [ ] Wipe down tea machines
+- [ ] Wipe down wall and counters surrounding desserts
+- [ ] Dust behind ice machine
+- [ ] Dust window sills in DR
+- [ ] Make sure all drinks are on racks
+- [ ] Wipe down table and chair legs in DR
+- [ ] Remove any stains on countertops
+- [ ] Clean sugar bin
+- [ ] Clean trash cans
+- [ ] Wipe down any white walls on FC and in the back
+- [ ] Overall, make sure everything goes back to where it belongs
+- [ ] iPad cabinet is organized
